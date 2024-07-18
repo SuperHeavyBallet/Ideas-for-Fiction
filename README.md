@@ -7,3 +7,5 @@ A collection of characters, scenes, monsters, all sorts of odd ideas I collect t
 # Monsters & Enemies
 - 'Willowing Widow' - Creature, tree base with female human torso/upper. Lady mourning loss of husband, ran to the woods and sat crying for so long a tree grew around her.
 - Robot Crow - https://www.youtube.com/shorts/QmaNBj20jcw?feature=share
+- Mutated, giant fly freature, either magic or sci-fi
+- 
